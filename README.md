@@ -29,9 +29,9 @@ minded.
 - cooking 🥘
 - friends gathering
 
-### ☺️ things I love in this world.
+### ☺️ things I love in this world
 
 - My family 👨‍👩‍👧‍👦
 - Dogs 🐕
 
-##### well that is enough!
+well that is enough
