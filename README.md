@@ -2,6 +2,8 @@
 
 ## welcome to my page 😊
 
+![alt text](./img/rahwa.png)
+
 Hello my name is Rahwa I am 24 years old. i am originally from Tigray north part
 of Ethiopian.I was born and raised there. i am very easy going person and open
 minded.
